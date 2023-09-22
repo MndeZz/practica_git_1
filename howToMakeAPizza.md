@@ -10,15 +10,15 @@
 
                         Instrucciones:
 
-1) Precalienta el horno a 220°C (430°F).
+1)Precalienta el horno a 220°C (430°F).
 
-2) Estira la masa para pizza en una superficie enharinada hasta que obtengas el tamaño deseado para tu pizza. Puedes hacer
+2)Estira la masa para pizza en una superficie enharinada hasta que obtengas el tamaño deseado para tu pizza. Puedes hacer
 una pizza grande o dividir la masa en porciones para pizzas individuales.
 
-3) Transfiere la masa a una bandeja de horno enharinada o a una piedra para pizza si tienes una. Esto evitará que la masa 
+3)Transfiere la masa a una bandeja de horno enharinada o a una piedra para pizza si tienes una. Esto evitará que la masa 
 se pegue.
 
-4) Extiende una capa uniforme de salsa de tomate sobre la masa, dejando un borde de aproximadamente 1 cm sin cubrir para 
+4)Extiende una capa uniforme de salsa de tomate sobre la masa, dejando un borde de aproximadamente 1 cm sin cubrir para 
 que la masa pueda dorarse.
 
 5)Espolvorea una generosa cantidad de queso mozzarella rallado sobre la salsa de tomate.
@@ -28,3 +28,9 @@ que la masa pueda dorarse.
 7)Riega un poco de aceite de oliva sobre la pizza para darle un sabor y textura deliciosa. También puedes espolvorear un poco de orégano seco si lo prefieres.
 
 8)Agrega sal y pimienta al gusto.
+
+9)Coloca la pizza en el horno precalentado y hornea durante aproximadamente 12-15 minutos o hasta que la masa esté dorada y el queso esté burbujeante y dorado.
+
+10)Una vez que la pizza esté lista, retírala del horno con cuidado y deja enfriar durante unos minutos antes de cortarla en porciones.
+
+¡Disfruta de tu deliciosa pizza casera!

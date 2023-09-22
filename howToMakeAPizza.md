@@ -20,3 +20,11 @@ se pegue.
 
 4) Extiende una capa uniforme de salsa de tomate sobre la masa, dejando un borde de aproximadamente 1 cm sin cubrir para 
 que la masa pueda dorarse.
+
+5)Espolvorea una generosa cantidad de queso mozzarella rallado sobre la salsa de tomate.
+
+6)Agrega los ingredientes de tu elección. Puedes ser tan creativo como desees, ¡pero no olvides que menos es más!
+
+7)Riega un poco de aceite de oliva sobre la pizza para darle un sabor y textura deliciosa. También puedes espolvorear un poco de orégano seco si lo prefieres.
+
+8)Agrega sal y pimienta al gusto.
